@@ -1,4 +1,4 @@
 # Riya_Singh
 Hey this is for my practice
 <br>
-Author : RIYA SINGH
+Author : RIYA SINGH(GGPA)
